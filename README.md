@@ -1,0 +1,1 @@
+# Kolokwium_2_TAI_L2_grupa_B
